@@ -1,0 +1,139 @@
+# 50 Cent – イン・ダ・クラブ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Go, go, go, go
+Go, go, go shawty
+It's your birthday
+We gon' party
+like it's yo birthday
+We gon' sip Bacardi
+like it's your birthday
+And you know
+we don't give a fuck
+It's not your birthday!
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+When I pull out up front
+you see the Benz on dubs
+When I roll 20 deep
+it's 20 knives in the club
+Niggas heard I fuck with Dre
+now they wanna show me love
+When you sell like Eminem
+and the hoes they wanna fuck
+But homie ain't nothin' change
+hold down, G's up
+I see Xzibit in the Cutt
+that nigga roll that weed up
+If you watch
+how I move you'll mistake me
+for a playa or pim
+Been hit wit' a few shells
+but I dont walk wit' a limp
+In the hood then the ladies
+sayin' 50 you hot
+They like me
+I want them to love me
+like they love 'Pac
+But holla in New York them
+niggas'll tell ya im loco
+And the plan is
+to put the rap game
+in a choke hold
+I'm feelin' focused man
+my money on my mind
+I got a mill out the deal
+and I'm still on the grind
+Now shawty said
+she feelin' my style
+she feelin' my flow
+Her girlfriend wanna get bi
+and they ready to go (Okay)
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+My flow, my show
+brought me  the doe
+That bought me all
+my fancy things
+My crib, my cars
+my pools, my jewels
+Look nigga I done came up
+and I ain't change
+And you should love it
+way more then you hate it
+Nigga you mad I thought
+that you'd be happy I made it
+I'm that cat by the bar
+toastin' to the good life
+You that faggot ass nigga
+tryin' to pull me back right
+When my junk get to pumpin
+in the club it's on
+I wink my eye at ya bitch
+if she smiles she gone
+If the roof on fire
+let the motherfucker burn
+If you talkin' about money homie
+I ain't concerned
+I'ma tell you what Banks told me
+cause go 'head switch
+the style up
+If the niggas hate
+then let 'em hate
+Watch the money pile up
+Or we go upside
+there wit 'a bottle of bub
+You know where we fuckin' be
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+You can find me in the club
+bottle full of bub
+Look mami I got the X
+if you into takin' drugs
+I'm into havin' sex
+I ain't into makin' love
+So come give me a hug
+if you into gettin' rubbed
+Don't try to act
+like you ain't know where
+we've been either nigga
+In the club all the time nigga
+it's about to pop off nigga
+GUnit
+```
